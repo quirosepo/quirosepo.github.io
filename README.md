@@ -1,1 +1,0 @@
-# quirosepo.github.io
